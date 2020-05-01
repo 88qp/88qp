@@ -1,7 +1,7 @@
 # 88棋牌 最新地址发布 
 ## 永 久 域 名：HttpS://88qp.red
-## ⭐️ 👉 地址一 ：HttpS://dh88qp.vip
-## ⭐️ 👉 备用导航 ：HttpS://dh88qp.net
+## ⭐️ 👉 下载地址一 ：HttpS://dh88qp.vip
+## ⭐️ 👉 下载地址二 ：HttpS://dh88qp.net
 ## ⭐️ 👉 手机版地址一：HttpS://88qp555.com
 ## ⭐️ 👉 手机版地址二：HttpS://88qp888.com
 ## ⭐️ 👉  <a href="https://o61.onlycallcentre.com/chat/chatClient/chatbox.jsp?companyID=80019621&configID=1134">在线客服</a>
