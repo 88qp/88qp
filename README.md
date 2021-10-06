@@ -1,4 +1,4 @@
-# 88棋牌 最新地址发布 
+# <img src="static/head.png">
 ## 永 久 域 名：88QP.RED
 ## ⭐️ 👉 下载地址：<br>⭐️ 👉 <a href="http://dh88qp.vip/">dh88qp.vip</a>
 ## ⭐️ 👉 手机版地址一<br>⭐️ 👉 <a href="http://www.88qp777.com">88qp777.com</a>
